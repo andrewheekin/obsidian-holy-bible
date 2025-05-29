@@ -1,0 +1,66 @@
+---
+aliases:
+  - Ben Sira
+  - Book of Ecclesiasticus
+  - Ecclesiasticus
+  - Liber Ecclesiastici
+  - Wisdom of Sirach
+  - Σοφία Σειράχ
+  - Sirach
+  - Book of Sirach
+---
+
+
+# Book of Sirach
+- [[Sirach 1]]
+- [[Sirach 2]]
+- [[Sirach 3]]
+- [[Sirach 4]]
+- [[Sirach 5]]
+- [[Sirach 6]]
+- [[Sirach 7]]
+- [[Sirach 8]]
+- [[Sirach 9]]
+- [[Sirach 10]]
+- [[Sirach 11]]
+- [[Sirach 12]]
+- [[Sirach 13]]
+- [[Sirach 14]]
+- [[Sirach 15]]
+- [[Sirach 16]]
+- [[Sirach 17]]
+- [[Sirach 18]]
+- [[Sirach 19]]
+- [[Sirach 20]]
+- [[Sirach 21]]
+- [[Sirach 22]]
+- [[Sirach 23]]
+- [[Sirach 24]]
+- [[Sirach 25]]
+- [[Sirach 26]]
+- [[Sirach 27]]
+- [[Sirach 28]]
+- [[Sirach 29]]
+- [[Sirach 30]]
+- [[Sirach 31]]
+- [[Sirach 32]]
+- [[Sirach 33]]
+- [[Sirach 34]]
+- [[Sirach 35]]
+- [[Sirach 36]]
+- [[Sirach 37]]
+- [[Sirach 38]]
+- [[Sirach 39]]
+- [[Sirach 40]]
+- [[Sirach 41]]
+- [[Sirach 42]]
+- [[Sirach 43]]
+- [[Sirach 44]]
+- [[Sirach 45]]
+- [[Sirach 46]]
+- [[Sirach 47]]
+- [[Sirach 48]]
+- [[Sirach 49]]
+- [[Sirach 50]]
+- [[Sirach 51]]
+
